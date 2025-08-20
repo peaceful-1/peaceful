@@ -77,7 +77,8 @@
 ## 📫 Let's Connect
 - 🔗 [LinkedIn](https://www.linkedin.com/in/peace-okafor-a2944931b)
 - (https://linkedin.com/in/peace-okafor-00523844)  
-- 📧 Email: peace.n.okafor@gmail.com  
+- 📧 Email: okafor.peace@uniccongroup.com
+             peace.n.okafor@gmail.com  
 - 🌐  
 
 ---
